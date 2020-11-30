@@ -4,8 +4,7 @@
 
 - Join my discord [server](https://discord.gg/VAfJA3zBuc) 🥰
 - Add me on discord - Jamie#0003 😘
-
-- Pronouns she/her 🏳️‍⚧️
+- Pronouns she/her 
 
 
 
