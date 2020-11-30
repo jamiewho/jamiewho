@@ -2,7 +2,7 @@
 
 [![Jamie's github stats](https://github-readme-stats.vercel.app/api?username=jamiewho)](https://github.com/anuraghazra/github-readme-stats)
 
-
+- Join my discord [server](https://discord.gg/VAfJA3zBuc) 🥰
 
 
 <!--
