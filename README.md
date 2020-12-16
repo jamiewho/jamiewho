@@ -1,6 +1,6 @@
 ###  Jamie's README / Stats
 
-[![Jamie's github stats](https://github-readme-stats.vercel.app/api?username=jamiewho)](https://github.com/anuraghazra/github-readme-stats)
+[![Jamie's github stats](https://github-readme-stats.vercel.app/api?username=jamiewho)](https://github.com/jamiewho/github-readme-stats)
 
 - Join my discord [server](https://discord.gg/VAfJA3zBuc) 🥰
 - Add me on discord - Jamie#0003 😘
